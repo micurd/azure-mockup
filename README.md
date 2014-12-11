@@ -1,0 +1,1 @@
+Mockup for azure.com
